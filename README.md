@@ -1,1 +1,3 @@
-# gods-grace-to-you
+# *God’s Grace to You:  Discovering the Depths of Divine Favor*
+## *In the vast landscape of Christian literature, few names command as much respect and affection as Charles H. Spurgeon. Known as the “Prince of Preachers,” Spurgeon had a unique gift for taking the most profound theological truths and making them accessible, warm, and deeply personal. His book, God’s Grace to You, is not merely a theological treatise; it is a spiritual lifeline.* [More details…](https://spiritualkhazaana.com/gods-grace-to-you-depths-of-divine-favor/)
+## #godsgrace #graceofgod #assuranceofsalvation #christianbooks #godspromise
